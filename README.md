@@ -5,4 +5,4 @@ me chamo _ANAJU!!!_
 - meus projetos em andamentos 😘
 
 ### meio de contato: 0001118110511sp@aluno.educacao.gov.br
-!{}(https://media1.tenor.com/m/zLpqBWxHl_EAAAAd/inside-out-inside-out-2.gif)
+![](https://media1.tenor.com/m/zLpqBWxHl_EAAAAd/inside-out-inside-out-2.gif)
